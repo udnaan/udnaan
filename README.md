@@ -1,1 +1,1 @@
-### Hatred rules when malice is protected but ideas are not.
+### When malice is protected but ideas are not, hatred will rule.
